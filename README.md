@@ -10,7 +10,7 @@ Esta mensagem inclui uma garantia de que você vai ter bons sonhos. Piegas, sent
 
 O envio de excelente noite de mensagens de texto é a abordagem ideal para ficar em contato com amigos.
 
-[![Frases Bonitas](http://www.gifsemensagens.com.br/mensagens_de_boa_noite/boa_noite0118.gif)](http://brcine.com.br/mensagem-de-boa-noite/)
+[![Frases Bonitas](http://www.gifsemensagens.com.br/mensagens_de_boa_noite/boa_noite0118.gif)]()
 
 Uma multa de texto antes de ir dormir é quase sempre um grande **detalhe de que todas as mulheres amam**, porque é espontâneo e porque isso normalmente significa que aquele que você ama está pensando em você, afirma Br Cine.
 
